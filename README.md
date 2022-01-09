@@ -1,5 +1,5 @@
-LIVRO DE RECEITAS
+LIVRO DE RECEITAS VEGANAS :herb:
 
-Olá! Bem vindo ao meu livro de receitas
+Olá! :smiley: Bem vindo ao meu livro de receitas
 
  - Strogonoff de soja
